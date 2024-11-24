@@ -1,1 +1,1 @@
-Appilicatio Page
+Appilication Page
